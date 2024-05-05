@@ -1,7 +1,4 @@
 
-[![Watch the video](https://i9.ytimg.com/vi_webp/bzPc4zhkOxM/mq1.webp?sqp=CICC2rEG-oaymwEmCMACELQB8quKqQMa8AEB-AH-CYAC0AWKAgwIABABGBMgEyh_MA8=&rs=AOn4CLDw59YDF33a0OLfHPdQ52LSoSWprQ)](https://youtu.be/bzPc4zhkOxM)
-
-Video☝️
 
 
 
